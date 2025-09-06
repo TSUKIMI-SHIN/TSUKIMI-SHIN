@@ -9,7 +9,7 @@ I watermark my ponies by making their necks invisible! I permahide + block other
 
 In some cases, I still can't hide or block people as they may continue to harass and attack me if I do. In fact, they may be reading this very post right now! Hii! Kind of my guess though.. I'm not into that stalking stuff but it's a common habit of my former friends. I deal with paranoia and other mental issues too so they may affect me during our time together.
 
-Another thing to add- if you do not want me to interact, than don't approach me, or I will consider the DNI voided since you broke it yourself. (Unless it's a DNIUID thing)
+Another thing to add- if you do not want me to interact, than don't approach me, or I will consider the DNI voided since you broke it yourself COUGHH TRANSPHOBES (I'm trans). (Unless it's a DNIUID thing)
 
 Note: I'm currently still a minor, and tend to prefer talking to people my age or older! I'm kind of wary around younger people since they've had a habit of targeting me since I was a wee little kid. I do not go on the 18+ server either.
 
