@@ -4,7 +4,7 @@ Check out my lovemail: https://github.com/TSUKIMI-SHIN/Puppet-Of-Fate
 
 Hello! You may know me as Snicket or any kin names (check out the rentry for it!) This BYI isn't too important, it's just letting you know about the worst of me.
 
-You may have have heard of me through friends or ex-friends alike! I'm considered an experience that's hard to let go, but I don't recommend getting attatched to me.
+You may have have heard of me through friends or ex-friends alike! I'm considered an experience that's hard to let go of, but I don't recommend getting attatched to me.
 
 I watermark my ponies by making their necks invisible! I permahide + block other people who use it for my comfort. I need to be able to set myself apart! (Not counting characters that already use it such as Ena!)
 
