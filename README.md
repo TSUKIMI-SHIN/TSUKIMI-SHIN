@@ -14,5 +14,7 @@ Another thing to add- if you do not want me to interact, than don't approach me,
 
 Note: I'm currently still a minor, and tend to prefer talking to people my age or older! I'm kind of wary around younger people since they've had a habit of targeting me since I was a wee little kid. I do not go on the 18+ server either.
 
+Also don't aggressively act romantic or sexual towards me just because any of us kin, introject, or remind you of certain characters. It's a bit weird..
+
 I think that's all for now.. I suffer on the daily with a lot of issues, so I may have to add or change more in the future. Byebye, Eight!
 P.S. I love Strawpage and Atabook signs!
