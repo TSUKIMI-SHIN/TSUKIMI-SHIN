@@ -1,17 +1,12 @@
 # Before You Interact
 
-Check out my lovemail: https://github.com/TSUKIMI-SHIN/Puppet-Of-Fate
+Hello! You may know me as Snicket or any kin names ^_^ I'm 18 years old!
+Feel free to approach me and form your own opinions! I'm often busy and may not stay long though. I struggle with mental health, paranoia, dissociation, hallucinations, memory, processing, and speaking due to past experiences. Please be patient with me and don't abandon me when I need support. Larger groups and conversation tends to be harder for me to partake in due to my aforementioned issues. It's either terminal or chronic and I can't tell.
 
-Hello! You may know me as Snicket or any kin names (check out the rentry for it!) This BYI isn't too important, it's just letting you know about the worst of me.
+I watermark my ponies with invisible necks to distinguish myself. I may hide others using the same watermark for comfort, excluding characters who already have it (e.g., Ena). I also try to avoid people who I've had bad pasts with, but due to my memory problems, there's a big chance that I'll forget who you are if we've had problems in the past and cross paths again. Inform me or avoid me if I'm causing an issue. It's mainly why I stick to my friends now.
 
-You may hear about me through all sorts of people! Feel free to approach me to gain your own perspective on me! I am quite busy nowadays though, so I may not stick around for long if I am friendly. I tend to have a lot of mental issues, so I may hallucinate certain things or get paranoid. Please avoid abandoning me if I need you!
+If your DNI excludes me but you interact anyway, I'll consider it voided. I may still ignore you, but I won't tolerate hypocrisy.
 
-I watermark my ponies by making their necks invisible! I hide other people who use it for my comfort if I can. I need to be able to set myself apart! (Not counting characters that already use it such as Ena!) I'm probably not the first to come up with the idea, but the only time I've seen someone else has used it was to harass me.
+P.S I avoid competitive people/topics if I notice it since I've never had a good experience with it. I'm reluctant to talk about yumeshipping and sometimes even my own interests too because of my past experiences with trying to share something I love and hold dear. I also avoid discussing stuff I don't know much about, so if I can't do either, I'll likely sit with you in silence. ^_^
 
-I'm currently an adult (18), but often forget my age and will see myself as similar to the ages of people I hang out with. Please forgive me! I exercise important boundaries regardless.
-
-Also don't aggressively act romantic or sexual towards me just because any of us kin, introject, or remind you of certain characters. It's a bit weird..
-Usually if you have a DNI that is meant to distance me, but you interact with me anyways, I will likely consider the DNI invalidated/voided due to your own actions. I will probably ignore you anyways, but I do not tolerate hypocricy.
-
-I think that's all for now.. I suffer on the daily with a lot of issues, so I may have to add or change more in the future. Byebye, Eight!
-P.S. I love Strawpage and Atabook signs! Feel free to sign them ^_^ just be nice!
+Thank you for reading and staying with me
